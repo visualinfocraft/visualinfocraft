@@ -95,7 +95,7 @@ We look forward to assisting you with your **web development projects**.
 If you’d like to discuss potential collaboration, feel free to get in touch:  
 
 🌐 **Website**: [https://visualinfocraft.com/](https://visualinfocraft.com/)  
-📧 **Email**: info@visualinfocraft.com  
+📧 **Email**: anil@visualinfocraft.com  
 📱 **Phone**: +91 75676 55839  
 
 ---
